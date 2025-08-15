@@ -79,8 +79,6 @@ A Light in the Attic	£51.77	Three
 Tipping the Velvet	£53.74	One
 Soumission	£50.10	One
 
-Author
-Divyani Kawde
 
 Author 
  Divyani kawde
